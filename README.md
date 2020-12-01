@@ -1,2 +1,1 @@
-# Sekolah-SD
-# Sekolah-SD
+# Sekoah-SD
